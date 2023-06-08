@@ -1,0 +1,1 @@
+# BARAT ( bahasa isyarat )
